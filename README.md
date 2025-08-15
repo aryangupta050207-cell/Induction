@@ -32,3 +32,24 @@ The fourth day of the induction program introduced students to diverse fields of
 2. Lecture on Digital Marketing Club                                                                                                     Next, Dr. Amit Kamra delivered a lecture about the Digital Marketing Club. He explained the objectives of the club, its activities, and the opportunities it provides for students to learn modern marketing techniques, social media strategies, and digital branding. The session highlighted how digital marketing skills are becoming essential in today’s professional world.
 3. Expert Lecture on Millets – Super Food                                                                                               The final session was conducted by Mrs. Shaffy Makkar on the topic Millets – Super Food. She explained the nutritional benefits of millets, their role in a balanced diet, and their importance in sustainable agriculture. The lecture encouraged students to make healthier food choices and understand the value of traditional grains.
 The fourth day’s sessions were informative and diverse, covering topics from sports and technology to health and nutrition. Each session added a unique dimension to our learning, making the day both enriching and inspiring.
+
+## Day-5(6 August,2025)
+
+The fifth day of the induction program focused on student welfare, the importance of physical fitness for professionals, and valuable life lessons from a highly experienced personality. The sessions aimed to guide students in maintaining well-being, developing discipline, and adopting a positive outlook towards personal and professional growth.                                                                                                                                                  
+1. Lecture on Student Welfare
+The day began with a lecture by Dr. Parminder Singh, Dean of the college, on Student Welfare. He explained the various facilities, support systems, and initiatives available for students, emphasizing the importance of overall development, mental health, and academic guidance. His address reassured students of the institution’s commitment to their holistic well-being.
+2. Lecture on Fitness for Engineers
+Following this, Mr. Manpreet Singh delivered an engaging lecture on Fitness for Engineers. He highlighted the significance of maintaining physical fitness despite busy academic schedules. The session covered practical tips on exercise, posture, and lifestyle management, particularly relevant for students in technical fields.
+3. Expert Lecture by Brigadier P.S. Cheema Sir
+The final session of the day was conducted by Brigadier P.S. Cheema Sir, who shared his vast experiences and life lessons. He spoke about discipline, leadership, time management, and resilience, inspiring students to adopt these qualities in their own lives. His motivational words left a lasting impact on the audience.           
+The fifth day’s sessions combined guidance, practical health tips, and deep inspiration. From understanding welfare support to learning about fitness and discipline, the day was a well-rounded blend of motivation and practical advice.
+
+## Day-6(8 August,2025)
+
+The sixth day of the induction program focused on introducing students to important institutional initiatives aimed at enhancing learning experiences and encouraging active participation in social service. The sessions provided insights into both academic enrichment opportunities and platforms for community engagement.
+1. Lecture on Center for Multi-Faceted Learning
+The day began with an informative lecture by Dr. Lakhvir Singh Khana, Incharge of the Center for Multi-Faceted Learning. He explained the purpose of the center, which is to provide diverse learning experiences beyond the traditional classroom. He discussed various programs, workshops, and activities conducted under the center to help students develop creativity, innovation, leadership, and problem-solving skills.
+
+2. Lecture on National Service Scheme (NSS)
+Following this, Mr. Jasvir Singh Grewal, Incharge of the National Service Scheme, delivered a session highlighting the objectives, structure, and activities of NSS. He emphasized how NSS helps in building personality, instilling discipline, and fostering a sense of responsibility towards society. Students were encouraged to participate in upcoming NSS events and camps to contribute positively to the community.
+The sixth day’s sessions were enriching, combining academic development with social responsibility. Learning about the Center for Multi-Faceted Learning opened new possibilities for skill enhancement, while the NSS session inspired students to serve the community and become responsible citizens.
