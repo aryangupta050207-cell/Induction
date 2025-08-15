@@ -44,7 +44,7 @@ Following this, Mr. Manpreet Singh delivered an engaging lecture on Fitness for 
 The final session of the day was conducted by Brigadier P.S. Cheema Sir, who shared his vast experiences and life lessons. He spoke about discipline, leadership, time management, and resilience, inspiring students to adopt these qualities in their own lives. His motivational words left a lasting impact on the audience.           
 The fifth day’s sessions combined guidance, practical health tips, and deep inspiration. From understanding welfare support to learning about fitness and discipline, the day was a well-rounded blend of motivation and practical advice.
 
-## Day-6(8 August,2025)
+## Day-6(7 August,2025)
 
 The sixth day of the induction program focused on introducing students to important institutional initiatives aimed at enhancing learning experiences and encouraging active participation in social service. The sessions provided insights into both academic enrichment opportunities and platforms for community engagement.
 1. Lecture on Center for Multi-Faceted Learning
